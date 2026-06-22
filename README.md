@@ -1,1 +1,1 @@
-# studybuudy-x-agrator
+# studybuddy-x-agrator
